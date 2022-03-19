@@ -1,4 +1,4 @@
-# Anwar & Hassan Co Ltd.
+# Welcome
 
 Our company is committed to safe general medical practice activity in the United Kingdom.
 
