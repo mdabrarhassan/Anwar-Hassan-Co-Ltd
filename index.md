@@ -9,7 +9,7 @@ Consultant Spinal Neurosurgeon
 ![Faizul Picture](https://roh.nhs.uk/media/zoo/images/Faizul-Hassan_b51e4194de537bb5b19f4f4da3117886.jpg)
 
 ### [Dr Afsana Anwar](https://www.lockfieldsurgery.co.uk/staff1.aspx)
-GP and GP Trainer(https://www.lockfieldsurgery.co.uk/staff1.aspx)
+GP and GP Trainer
 
 ![Afsana Picture](https://i.imgur.com/SvfVSB8.png)
 
